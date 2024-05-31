@@ -28,7 +28,7 @@
 - 📫 How to reach me **pragathi.20200351@iit.ac.lk**
 
 
-- ⚡ Fun fact **Fun Fact call me as PS**
+- ⚡ **Fun Fact call me as PS**
 
 ---
 
